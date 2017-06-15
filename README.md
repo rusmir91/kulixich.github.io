@@ -1,1 +1,0 @@
-# kulixich.github.io
